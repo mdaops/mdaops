@@ -1,5 +1,5 @@
 - 👋 
-- 👀 Who am I, asked absolutely no one. A connoisseur of terrible memes & farther of one.
+- 👀 Who am I, asked absolutely no one. A connoisseur of terrible memes & farther of two.
 - 🌱 GO evangelist. Lover of distrubuted systems.
 
 <!---
